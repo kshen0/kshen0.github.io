@@ -1,5 +1,5 @@
 # A note on websites
-I decided to take down my Squarespace site and will instead be rolling my own soon. It seems I've finally bamboozled myself into taking on a web dev side project. In the meantime, enjoy this highly stylized Github page / [Google forms](https://forms.gle/W6Tw2aot7FayZPTv6) combo.
+I decided to take down my Squarespace site and will instead be rolling my own soon with the help of a designer friend. It seems I've finally bamboozled myself into taking on a web dev side project. In the meantime, enjoy this highly stylized Github page / [Google forms](https://forms.gle/W6Tw2aot7FayZPTv6) combo.
 
 # Availability
 Next availability is October 16-18, 2020.
