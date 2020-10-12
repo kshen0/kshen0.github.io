@@ -13,6 +13,7 @@ Order [here](https://forms.gle/W6Tw2aot7FayZPTv6)
 
 ## Anjou Mama
 _Recipe by Jillian Vose, Death & Co_
+
 Juniper, which is front and center with the usual Tanqueray drinks you've seen before here, takes a backseat here with Venus No. 1 (local from Santa Cruz!) and Four Pillars. Strong yet fruity!
 
 Fresh anjou pear
@@ -34,6 +35,7 @@ House grenadine
 
 ## Eye of the Torino
 _Clarified milk punch adapted from a recipe by Jillian Vose, Death & Co_
+
 Another clarified tiki-ish milk punch. Give Laphroaig a second chance after my questionable first run of the Straw Dog. "The only balanced Laphroaig cocktail I've had" according to our focus groups.
 
 Laphroaig
@@ -49,6 +51,7 @@ Chocolate Bitters
 
 ## Do Not Go Gentle Into That Good Night
 _Recipe by Chantal Tseng_
+
 A hot toddy with a few more bells and whistles. Perfect for those crisp autumn nights when you've left the windows open because the recent rain has dropped the AQI to sweet, sweet single digits.
 
 Hot Earl Gray tea
