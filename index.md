@@ -3,6 +3,7 @@ I decided to take down my Squarespace site and will instead be rolling my own so
 
 # Availability
 Next availability is October 16-18, 2020.
+* Cocktails are $9 each
 * Delivery available Friday night, Saturday 3-5, and Sunday 3-5
 * Pickup available in the Inner Richmond most other times 10/16-10/18
 * Order from [Google forms](https://forms.gle/W6Tw2aot7FayZPTv6)
