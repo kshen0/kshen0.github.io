@@ -2,7 +2,7 @@
 I decided to take down my Squarespace site and will instead be rolling my own soon. It seems I've finally bamboozled myself into taking on a web dev side project. In the meantime, enjoy this highly stylized Github page / [Google forms](https://forms.gle/W6Tw2aot7FayZPTv6) combo.
 
 # Availability
-Next availability is October 16, 2020.
+Next availability is October 16-18, 2020.
 * Delivery available Friday night, Saturday 3-5, and Sunday 3-5
 * Pickup available in the Inner Richmond most other times 10/16-10/18
 * Order from [Google forms](https://forms.gle/W6Tw2aot7FayZPTv6)
