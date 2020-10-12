@@ -64,10 +64,11 @@ Star Anise
 _Some assembly required: for best results, brew the tea (leaves included) and torch the star anise right before you want to drink._
 
 As always,
-✅ hand washing
-✅ mask wearing
-❌ taste sneaking
 
-[Order form](https://forms.gle/W6Tw2aot7FayZPTv6)
+* ✅ hand washing
+* ✅ mask wearing
+* ❌ taste sneaking
+
+[Order today!](https://forms.gle/W6Tw2aot7FayZPTv6)
 
 
