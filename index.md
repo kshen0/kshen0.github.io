@@ -2,74 +2,48 @@
 I decided to take down my Squarespace site and will instead be rolling my own soon with the help of a designer friend. It seems I've finally bamboozled myself into taking on a web dev side project. In the meantime, enjoy this highly stylized Github page / [Google forms](https://forms.gle/W6Tw2aot7FayZPTv6) combo.
 
 # Availability
-Next availability is October 16-18, 2020.
-* Cocktails are $9 each
+Next availability is October 30, 31, and Nov 1
 * Delivery available Friday night, Saturday 3-5, and Sunday 3-5
-* Pickup available in the Inner Richmond most other times 10/16-10/18
-* Order from [Google forms](https://forms.gle/W6Tw2aot7FayZPTv6)
+* Pickup available in the Inner Richmond most other times
+* Most off-schedule requests can be accommodated!
 
 # Fall menu
-_Listed roughly in descending order by ABV - stronger drinks at the top, longer drinks at the bottom!_
-Order [here](https://forms.gle/W6Tw2aot7FayZPTv6)
+
+## Mexican Firing Squad
+$6
+
+Still avoiding large gatherings, but want to get drunk on tequila Halloween weekend for the cost of one surge-priced Uber? This is your drink.
+
+Reposado tequila, lime, fresh grenadine, Angostura bitters
 
 ## Anjou Mama
 _Recipe by Jillian Vose, Death & Co_
+$9
 
 Juniper, which is front and center with the usual Tanqueray drinks you've seen before here, takes a backseat here with Venus No. 1 (local from Santa Cruz!) and Four Pillars. Strong yet fruity!
 
-* Fresh anjou pear
-* Venus No. 1 gin
-* Four Pillars Navy Strength gin
-* Lemon
-* Orgeat
-* Cinnamon syrup
-* Honey syrup
-
-## Jack Rose
-A classic from the 20s featuring Applejack, America's first distilled spirit. 100-proof Laird's is softened with cognac and homemade grenadine from bougie farmers' market pomegranate juice.
-
-* Laird’s apple brandy
-* Pierre Ferrand 1840 cognac
-* Lemon
-* Lime
-* House grenadine
+Pear, Venus No. 1 gin, Four Pillars Navy Strength gin, lemon, orgeat, cinnamon syrup, honey syrup
 
 ## Eye of the Torino
 _Clarified milk punch adapted from a recipe by Jillian Vose, Death & Co_
+$9
 
 Another clarified tiki-ish milk punch. Give Laphroaig a second chance after my questionable first run of the Straw Dog. "The only balanced Laphroaig cocktail I've had" according to our focus groups.
 
-* Laphroaig 10 scotch
-* Cocchi Vermouth di Torino
-* Pineapple
-* Lemon
-* Orgeat
-* Vanilla
-* Coco Lopez
-* Milk
-* Angostura Bitters
-* Chocolate Bitters
+Laphroaig 10 scotch, Cocchi Vermouth di Torino, pineapple, lemon, orgeat, Coco Lopez, milk, Angostura & chocolate bitters
 
-## Do Not Go Gentle Into That Good Night
-_Recipe by Chantal Tseng_
+## Fog Lights Milk Punch
+_Recipe by Diego Pena_
+$9
 
-A hot toddy with a few more bells and whistles. Perfect for those crisp autumn nights when you've left the windows open because the recent rain has dropped the AQI to sweet, sweet single digits.
+A wintery milk punch inspired by a [London Fog](https://en.wikipedia.org/wiki/London_fog_(beverage))
 
-* Hot Earl Gray tea
-* Glenlivet 12 scotch
-* Honey Syrup
-* St. Elizabeth Allspice Dram
-* Lemon
-* Star Anise
-
-_Some assembly required: for best results, brew the tea (leaves included) and torch the star anise right before you want to drink._
+Bourbon, rum, cognac, lemon, milk, Earl Gray syrup, vanilla
 
 As always,
 
 * ✅ hand washing
 * ✅ mask wearing
 * ❌ taste sneaking
-
-[Order today!](https://forms.gle/W6Tw2aot7FayZPTv6)
 
 
