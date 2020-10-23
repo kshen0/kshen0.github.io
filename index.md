@@ -1,13 +1,3 @@
-# A note on websites
-I decided to take down my Squarespace site and will instead be rolling my own soon with the help of a designer friend. It seems I've finally bamboozled myself into taking on a web dev side project. In the meantime, enjoy this highly stylized Github page / [Google forms](https://forms.gle/peefcFMMbvbA2bm98) combo.
-
-# Availability
-Next availability is October 30, 31, and Nov 1
-* Delivery available Friday night, Saturday 3-5, and Sunday 3-5
-* Pickup available in the Inner Richmond most other times
-* Off-schedule requests can be accommodated!
-* Order from [Google forms](https://forms.gle/peefcFMMbvbA2bm98)
-
 # Fall menu
 
 ## Mexican Firing Squad
@@ -58,11 +48,23 @@ Give Laphroaig a second chance after my questionable first run of the Straw Dog.
 
 **Laphroaig 10 scotch, Cocchi Vermouth di Torino, pineapple, lemon, orgeat, Coco Lopez, milk, Angostura & chocolate bitters**
 
+# How to order
+Go [here](https://forms.gle/peefcFMMbvbA2bm98)
+
+# Availability
+Next availability is October 30, 31, and Nov 1
+* Delivery available Friday night, Saturday 3-5, and Sunday 3-5
+* Pickup available in the Inner Richmond most other times
+* Off-schedule requests can be accommodated!
+* Order from [Google forms](https://forms.gle/peefcFMMbvbA2bm98)
+
+# A note on websites
+I decided to take down my Squarespace site and will instead be rolling my own soon with the help of a designer friend. It seems I've finally bamboozled myself into taking on a web dev side project. In the meantime, enjoy this highly stylized Github page / [Google forms](https://forms.gle/peefcFMMbvbA2bm98) combo.
+
+# Safety
 As always,
 
 * ✅ hand washing
 * ✅ mask wearing
 * ❌ taste sneaking
 
-# How to order
-Go [here](https://forms.gle/peefcFMMbvbA2bm98)
