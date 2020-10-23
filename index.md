@@ -18,6 +18,7 @@ Still avoiding large gatherings, but want to get drunk on tequila Halloween week
 
 ## Bourbon and Tepache
 _Recipe by Bryan Eichhorst, Penca_
+
 $9
 
 Tepache is a Mexican fermented beverage made from pineapple and spices. Mine turned out a bit sweet, making this sweet and spiced cocktail a great Halloween treat or sipper for a cool night by the Netflix fire. 
@@ -31,6 +32,7 @@ If you just want the tepache (to drink on ice, in a cool Modelo, or to disinterm
 
 ## Fog Lights Milk Punch
 _Recipe by Diego Pena_
+
 $9
 
 A wintery clarified milk punch inspired by a [London Fog](https://en.wikipedia.org/wiki/London_fog_(beverage))
@@ -39,6 +41,7 @@ A wintery clarified milk punch inspired by a [London Fog](https://en.wikipedia.o
 
 ## Anjou Mama
 _Recipe by Jillian Vose, Death & Co_
+
 $9
 
 Juniper, which is front and center with the usual Tanqueray drinks you've seen before here, takes a backseat here with Venus No. 1 (local from Santa Cruz!) and Four Pillars. Strong yet fruity!
@@ -47,6 +50,7 @@ Juniper, which is front and center with the usual Tanqueray drinks you've seen b
 
 ## Eye of the Torino
 _Clarified milk punch adapted from a recipe by Jillian Vose, Death & Co_
+
 $9
 
 Give Laphroaig a second chance after my questionable first run of the Straw Dog. "The only balanced Laphroaig cocktail I've had" according to our focus groups.
