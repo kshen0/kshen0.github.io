@@ -3,7 +3,7 @@
 ## Mexican Firing Squad
 $5
 
-Still avoiding large gatherings, but want to get drunk on tequila Halloween weekend for the cost of one surge-priced Uber? This is your drink.
+Still avoiding large gatherings, but want to get drunk on Halloween weekend for the cost of one surge-priced Uber? This is your drink.
 
 **Reposado tequila, lime, fresh grenadine, Angostura bitters**
 
