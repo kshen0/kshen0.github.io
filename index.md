@@ -30,7 +30,7 @@ $3/5 oz (while supplies last)
 
 If you just want the tepache (to drink on ice, in a cool Modelo, or to disintermediate the cocktail middleman)
 
-## Fog Lights Milk Punch
+## Fog Lights
 _Recipe by Diego Pena_
 
 $9
