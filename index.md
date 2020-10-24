@@ -17,9 +17,9 @@ Tepache is a Mexican fermented beverage made from pineapple and spices. Mine tur
 **Elijah Craig small batch, tepache, Cocchi di Torino sweet vermouth, falernum, lemon, apple cider vinegar, Angostura bitters**
 
 ## Tepache
-$3/5 oz (while supplies last)
+$3/8 oz or $4/12.6oz (while supplies last)
 
-If you just want the tepache (to drink on ice, in a cool Modelo, or to disintermediate the cocktail middleman)
+If you just want the tepache (to drink on ice, or to disintermediate the cocktail middleman)
 
 ## Fog Lights
 _Recipe by Diego Pena_
