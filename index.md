@@ -1,34 +1,12 @@
 # Fall menu
 
-## Mexican Firing Squad
-$5
+## Aged Infinity Manhattan
+$6
 
-Still avoiding large gatherings, but want to get drunk on Halloween weekend for the cost of one surge-priced Uber? This is your drink.
+An _infinity bottle_ is fancy jungle juice. Leftovers from bottles are combined and aged for at least a month to create a one-of-a-kind cocktail - in this case, a Manhattan with Redwood Empire, Rittenhouse, and Wild Turkey rye, as well as Woodford Reserve bourbon, Cocchi di Torion, and gomme syrup.
 
-**Reposado tequila, lime, fresh grenadine, Angostura bitters**
+**Rye, bourbon, Cocchi di Torino, gomme syrup**
 
-## Bourbon and Tepache
-_Recipe by Bryan Eichhorst, Penca_
-
-$9
-
-Tepache is a Mexican fermented beverage made from pineapple and spices. Mine turned out a bit sweet, making this sweet and spiced cocktail a great Halloween treat or sipper for a cool night by the Netflix fire. 
-
-**Elijah Craig small batch, tepache, Cocchi di Torino sweet vermouth, falernum, lemon, apple cider vinegar, Angostura bitters**
-
-## Tepache
-$3/8 oz or $4/12.6oz (while supplies last)
-
-If you just want the tepache (to drink on ice, or to disintermediate the cocktail middleman)
-
-## Fog Lights
-_Recipe by Diego Pena_
-
-$9
-
-A wintery clarified milk punch inspired by a [London Fog](https://en.wikipedia.org/wiki/London_fog_(beverage))
-
-**Bourbon, Appleton Estate rum, Pierre Ferrand 1840 cognac, lemon, milk, Earl Gray syrup, vanilla**
 
 ## Anjou Mama
 _Recipe by Jillian Vose, Death & Co_
