@@ -3,7 +3,7 @@
 ## Aged Infinity Manhattan
 $6
 
-An _infinity bottle_ is fancy jungle juice. Leftovers from bottles are combined and aged for at least a month to create a one-of-a-kind cocktail - in this case, a Manhattan with Redwood Empire, Rittenhouse, and Wild Turkey rye, as well as Woodford Reserve bourbon, Cocchi di Torion, and gomme syrup.
+An _infinity bottle_ is fancy jungle juice. Leftovers from bottles are combined and aged for at least a month to create an unrepeatable cocktail - in this case, a Manhattan with Redwood Empire, Rittenhouse, and Wild Turkey rye, as well as Woodford Reserve bourbon, Cocchi di Torion, and gomme syrup.
 
 **Rye, bourbon, Cocchi di Torino, gomme syrup**
 
