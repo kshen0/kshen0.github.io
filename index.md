@@ -1,5 +1,3 @@
-[Order form](https://forms.gle/M8E2oLhnAe4WVYHW9)
-
 # Fall menu
 
 ## Four & Twenty
