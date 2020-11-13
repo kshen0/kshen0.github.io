@@ -46,7 +46,7 @@ Give Laphroaig a second chance after my questionable first run of the Straw Dog.
 Go [here](https://forms.gle/M8E2oLhnAe4WVYHW9)
 
 # Availability
-Next availability is November 14-25. I'm taking a week off work so I'll be generally available for pickup or delivery right up until Thanksgiving!
+Next availability is November 14-25. I'm taking a week off work so I'll be generally available for pickup (free) or delivery ($3) right up until Thanksgiving!
 Order from [Google forms](https://forms.gle/M8E2oLhnAe4WVYHW9)
 
 # Safety
