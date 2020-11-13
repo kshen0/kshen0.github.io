@@ -3,7 +3,7 @@
 ## French 425
 $9
 
-I wanted to make a drink that tastes like pie. This rich, velvety cocktail has it all: double-filtered brown butter-infused bourbon, pear cognac, spiced liqueuers, the nostalgia of pi days past.
+You know I had to do it: this drink tastes like pie. This rich, velvety cocktail has it all: double-filtered brown butter-infused bourbon, pear cognac, spiced liqueuers, the nostalgia of pi days past.
 
 **Brown butter bourbon, Belle de Brillet, St. Elizabeth's allspice dram, Lustau sherry vermut rojo, lemon, whiskey barrel aged bitters**
 
