@@ -5,7 +5,7 @@ $9
 
 You know I had to do it: this drink tastes like pie. This rich, velvety cocktail has it all: double-filtered brown butter-infused bourbon, pear cognac, spiced liqueuers, the nostalgia of pi days past.
 
-**Brown butter bourbon, Belle de Brillet, St. Elizabeth's allspice dram, Lustau sherry vermut rojo, lemon, whiskey barrel aged bitters**
+**Brown butter bourbon, Belle de Brillet, St. Elizabeth's allspice dram, lemon, whiskey barrel aged bitters**
 
 ## Lipstick Memory
 _Recipe by Christian Suzuki-Orellana, Kagano Popup_
