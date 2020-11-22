@@ -56,7 +56,7 @@ $9
 
 Juniper, which is front and center with the usual Tanqueray gin drinks you've seen before here, takes a backseat here with Santa Cruz's Venus No. 1 and Australia's Four Pillars. Strong yet fruity!
 
-**Pear, Venus No. 1 gin, Four Pillars Navy Strength gin, lemon, orgeat, cinnamon syrup, honey syrup**
+**Fresh pear, Venus No. 1 gin, Four Pillars Navy Strength gin, lemon, orgeat, cinnamon syrup, honey syrup**
 
 ## Eye of the Torino
 _Clarified milk punch adapted from a recipe by Jillian Vose, Death & Co_
@@ -71,7 +71,7 @@ Give Laphroaig a second chance after my questionable first run of the Straw Dog.
 Go [here](https://forms.gle/M8E2oLhnAe4WVYHW9)
 
 # Availability
-Next availability is November 14-25. I'm taking a week off work so I'll be generally available for pickup (free) or delivery ($3) right up until Thanksgiving!
+Now until the night of Black Friday (November 27). Pickup (free in the outer Richmond) or delivery ($3)!
 Order from [Google forms](https://forms.gle/M8E2oLhnAe4WVYHW9)
 
 # Safety
