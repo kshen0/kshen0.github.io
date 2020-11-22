@@ -1,6 +1,6 @@
 # THANKSGIVING SPECIAL
 
-We've joined forces with peerless baker **Cat Reading Kamireddy** to benefit [SF New Deal](https://sfnewdeal.org/) this Thanksgiving. All proceeds from Thanksgiving sales will go to SF New Deal to help pay restaurants to provide meals for food insecure neighbors.
+We've joined forces with peerless baker **Cat Reading Kamireddy** to benefit [SF New Deal](https://sfnewdeal.org/) this Thanksgiving. All Thanksgiving baked goods and cocktail sales will be donated to SF New Deal to help pay restaurants to provide meals for food insecure neighbors.
 
 
 ![clevertalk](https://user-images.githubusercontent.com/1060688/99894516-5671f900-2c39-11eb-975e-efd707599250.jpg)
@@ -8,7 +8,7 @@ We've joined forces with peerless baker **Cat Reading Kamireddy** to benefit [SF
 ## Home on the range cookies
 _Cat Reading special_
 
-$5/3
+$5/3 cookies
 
 A classic chocolate chip cookie with added oomf from oats, pecans, and rice cereal. (Bonus: the oats and cereal mean you can eat them for breakfast.)
 
@@ -17,7 +17,7 @@ Butter, brown sugar, sugar, vanilla, eggs, flour, oats, chocolate chips, rice ch
 ## When life gives you lemons bars
 _Cat Reading special_
 
-$5/3
+$5/3 bars
 
 A fresh take on cranberry season. A vanilla cookie base with tangy sweetness from the two most perfect tart fruits: lemons and cranberries
 
