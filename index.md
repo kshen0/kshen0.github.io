@@ -2,6 +2,9 @@
 
 We've joined forces with peerless baker **Cat Reading Kamireddy** to benefit [SF New Deal](https://sfnewdeal.org/) this Thanksgiving. All proceeds from Thanksgiving sales will go to SF New Deal to help pay restaurants to provide meals for food insecure neighbors.
 
+
+![clevertalk](https://user-images.githubusercontent.com/1060688/99894516-5671f900-2c39-11eb-975e-efd707599250.jpg)
+
 ## Home on the range cookies
 $5/3
 
