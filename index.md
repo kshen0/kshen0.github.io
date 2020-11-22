@@ -1,3 +1,21 @@
+# THANKSGIVING SPECIAL
+
+We've joined forces with peerless baker **Cat Reading Kamireddy** to benefit [SF New Deal](https://sfnewdeal.org/) this Thanksgiving. All proceeds from Thanksgiving sales will go to SF New Deal to help pay restaurants to provide meals for food insecure neighbors.
+
+## Home on the range cookies
+$5/3
+
+A classic chocolate chip cookie with added oomf from oats, pecans, and rice cereal. (Bonus: the oats and cereal mean you can eat them for breakfast.)
+
+Butter, brown sugar, sugar, vanilla, eggs, flour, oats, chocolate chips, rice chex
+
+## When life gives you lemons bars
+$5/3
+
+A fresh take on cranberry season. A vanilla cookie base with tangy sweetness from the two most perfect tart fruits: lemons and cranberries
+
+Butter, sugar, vanilla, eggs, flour, lemon, cranberries
+
 # Fall menu
 
 ## French 425
@@ -5,7 +23,7 @@ $9
 
 You know I had to do it: this drink tastes like pie. This rich, velvety cocktail has it all: double-filtered brown butter-infused bourbon, pear cognac, spiced liqueuers, the nostalgia of pi days past.
 
-**Brown butter bourbon, Belle de Brillet, St. Elizabeth's allspice dram, lemon, whiskey barrel aged bitters**
+**Brown butter bourbon, Belle de Brillet, St. George's spiced pear liqueur, St. Elizabeth's allspice dram, lemon, whiskey barrel aged bitters**
 
 ## Lipstick Memory
 _Recipe by Christian Suzuki-Orellana, Kagano Popup_
@@ -19,7 +37,7 @@ Speaking of pies, this tart and bitter Camapari number (dare we call it a spritz
 ## Aged Infinity Manhattan
 $7 (limited quantity)
 
-An _infinity bottle_ is fancy jungle juice. Leftovers from bottles are combined and aged for at least a month to create an unrepeatable cocktail (BYO Hawaiian punch)
+An _infinity bottle_ is fancy jungle juice. Leftovers from bottles are combined and aged for at least a month to create an unrepeatable and complex version Manhattan.
 
 **3 ryes, 1 bourbon, Cocchi di Torino, gomme syrup**
 
