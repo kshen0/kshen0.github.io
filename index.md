@@ -6,6 +6,8 @@ We've joined forces with peerless baker **Cat Reading Kamireddy** to benefit [SF
 ![clevertalk](https://user-images.githubusercontent.com/1060688/99894516-5671f900-2c39-11eb-975e-efd707599250.jpg)
 
 ## Home on the range cookies
+_Cat Reading special_
+
 $5/3
 
 A classic chocolate chip cookie with added oomf from oats, pecans, and rice cereal. (Bonus: the oats and cereal mean you can eat them for breakfast.)
@@ -13,6 +15,8 @@ A classic chocolate chip cookie with added oomf from oats, pecans, and rice cere
 Butter, brown sugar, sugar, vanilla, eggs, flour, oats, chocolate chips, rice chex
 
 ## When life gives you lemons bars
+_Cat Reading special_
+
 $5/3
 
 A fresh take on cranberry season. A vanilla cookie base with tangy sweetness from the two most perfect tart fruits: lemons and cranberries
