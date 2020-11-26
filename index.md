@@ -1,3 +1,6 @@
+# SOLD OUT!
+See you in December!
+
 # THANKSGIVING SPECIAL
 
 We've joined forces with peerless baker **Cat Reading Kamireddy** to benefit [SF New Deal](https://sfnewdeal.org/) this Thanksgiving. All Thanksgiving baked goods and cocktail sales will be donated to SF New Deal to help pay restaurants to provide meals for food insecure neighbors.
