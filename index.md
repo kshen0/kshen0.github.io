@@ -31,6 +31,9 @@ Orders can be picked up or delivered in San Francisco
 
 [Order here](https://forms.gle/64GSHoad9tC38iPy5). Cash payment requested upon delivery
 
+## Questions, comments, and concerns
+Fill out our [feedback form](https://forms.gle/3R5fnrMdGF8oXAMR8)!
+
 # Safety
 As always,
 
