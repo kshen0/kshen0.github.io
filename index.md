@@ -2,13 +2,10 @@
 
 Stay tuned!
 
-## Aged infinity cocktails
-$7
+## Ginger beer
+$5
 
-An _infinity bottle_ is fancy jungle juice. Leftovers from bottles are combined and aged for at least a month to create an unique and complex versions of the classics. (Limited quantity)
-
-## Manhattan
-**3 ryes, 2 bourbons, 2 sweet vermouths, gomme syrup**
+Fresh ginger juice, cane sugar, Topo Chico, dehydrated lime wheel
 
 # Safety
 As always,
