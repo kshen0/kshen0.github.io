@@ -17,6 +17,12 @@ Seedlip Spice nonalcoholic distillate, Earl Gray syrup, lemon
 
 All orders come with ice, straws, and garnishes
 
+## Fulfillment
+Orders can be picked up or delivered in San Francisco
+
+[https://forms.gle/64GSHoad9tC38iPy5](Order here)
+Cash payment requested upon delivery
+
 # Safety
 As always,
 
