@@ -20,8 +20,7 @@ All orders come with ice, straws, and garnishes
 ## Fulfillment
 Orders can be picked up or delivered in San Francisco
 
-[Order here](https://forms.gle/64GSHoad9tC38iPy5)
-Cash payment requested upon delivery
+[Order here](https://forms.gle/64GSHoad9tC38iPy5). Cash payment requested upon delivery
 
 # Safety
 As always,
